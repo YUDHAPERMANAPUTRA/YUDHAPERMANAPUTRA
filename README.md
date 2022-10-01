@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YUDHAPERMANAPUTRA
+- 👋 Hi, I’m YUDHAPERMANAPUTRA
 - 👀 I’m interested in Administration,Legal, HR
 - 🌱 I’m currently learning ...
 - 💞️ I'm currently looking for a job in the field of administration, human resources, and legal
@@ -8,6 +8,7 @@ In the field of human resources, I like the field and learn it will continue to 
 Whatsapp : 081287319250
 email : yudhapermanaputra9@gmail.com
 LinkedIn : linkedin.com/in/yudha-permana-665ba0157
+Instagram : https://www.instagram.com/pernamayudha/
 
 MY SELF STORY
 YUDHAPERMANAPUTRA/YUDHAPERMANAPUTRA is a ✨ special ✨ YUDHA PERMANA PUTRA is a special in the field of Administration and Legal
